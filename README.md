@@ -8,4 +8,4 @@
 
 |  NAMA | NIM | LINK PDF Usecase 1 |
 | --- | --- | --- | 
-| Muhammad Zidan Fadillah | 312210277 |https://youtu.be/6ck_l8tBNsQ)
+| Muhammad Zidan Fadillah | 312210277 |https://youtu.be/6ck_l8tBNsQ
