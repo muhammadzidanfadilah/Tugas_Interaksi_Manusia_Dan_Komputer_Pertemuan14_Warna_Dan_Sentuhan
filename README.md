@@ -16,5 +16,5 @@ Hafidza Dafariz Mujizat (312210276)
 Muhammad Zidan Fadillah (312210277)
 ````
 
-# LINK YT PEMBUATAN VIDEO KELOMPOK
+# LINK YOUTUBE PEMBUATAN VIDEO KELOMPOK
 https://youtu.be/6ck_l8tBNsQ
